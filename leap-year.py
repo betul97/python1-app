@@ -1,2 +1,1 @@
-
-ben yeni bir commit ekledim
+loving each other day by day
